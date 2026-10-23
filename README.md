@@ -1,1 +1,1 @@
-Retos para la HACK&WIN 2025
+Retos para la HACK&WIN 2026
